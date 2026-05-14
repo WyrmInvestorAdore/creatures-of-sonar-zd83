@@ -1,4 +1,4 @@
-#  
+#  Experience shrink for brainrots like never before with shrink for brainrots new Script, the #1 Script. Includes auto-farm and custom skins for
 
 
 
